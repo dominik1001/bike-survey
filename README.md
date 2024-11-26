@@ -4,7 +4,7 @@
 
 To validate ideas that improve cycling in Germany I did a small survey in November 2024. Here are the results.
 
-Feel free to contact me on LinkedIn, if you're interested in the plain results.
+Feel free to contact me on LinkedIn, if you're interested in the complete results.
 
 ![](images/image0.png?raw=true "Title")
 
